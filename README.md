@@ -1,12 +1,11 @@
 <div align="center">
 
-  ![](https://komarev.com/ghpvc/?username=devimccallion&label=Garden+Visitors&color=ff69b4)
-
-![static-assets-upload481562160624407730](https://github.com/user-attachments/assets/5afb8713-a4ae-4fd2-a235-850825e0a7d6)
+  ![](https://komarev.com/ghpvc/?username=devimccallion&label=Page+Views&color=blue)
+  
+  ![1_SErheXuzd6ra12YNcjtkZA](https://github.com/user-attachments/assets/a47d9cfb-9600-4435-8575-76cc6c33206c)
 
 Page ﹏ Wip
 
-![Screenshot 2025-05-05 10 36 48 AM](https://github.com/user-attachments/assets/a0c8a1a1-2e2b-4d1e-8949-3dd8f181d2e6)
-
+![1207b926c81d54b92def76a1954fa776](https://github.com/user-attachments/assets/db202b73-a83b-4ba7-a67d-953a01892d3b)
 
   </div>

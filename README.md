@@ -8,6 +8,6 @@
 
    ﹏ 
 
-   [sign ata](https://007n7.atabook.org) . [draw something](https://7314.straw.page) . rentry wip . [art cred](https://x.com/yofournor)
+   [sign ata](https://007n7.atabook.org) . [draw something](https://7314.straw.page) . [art cred](https://x.com/yofournor)
 
   </div>

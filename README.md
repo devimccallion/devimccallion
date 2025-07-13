@@ -6,7 +6,7 @@
   
   ﹏ 
   
-![](https://i.postimg.cc/4dY5Hbbs/Untitled1326-20250713003532.png)
+![]([https://i.postimg.cc/4dY5Hbbs/Untitled1326-20250713003532.png](https://i.postimg.cc/sD4pXNd5/IMG-7168.gif))
 
    ﹏ 
 

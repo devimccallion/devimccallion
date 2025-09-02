@@ -13,6 +13,7 @@
   ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 ![65a284aa377c589139667f5e25cf9a17](https://github.com/user-attachments/assets/09b6aee9-88e8-4bd1-b1f2-c1764e19739a)
+Hi ignore How lame my profile is right now Ok? Im remaking it..andmy sites...slowly/// :,-(
 
 
   </div>

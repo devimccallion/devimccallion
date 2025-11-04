@@ -1,11 +1,10 @@
 <div align="center">
 
-  hi i dont want to make my profile right now 
+  hi i dont want to make my profile ehlol 
+  
+![G4hAFiOWoAAG_c4](https://github.com/user-attachments/assets/e6a3a338-beef-4b7c-98df-d4b4bf5d7989)
   
   ![](https://komarev.com/ghpvc/?username=devimccallion&label=Page+Views&color=orange) 
-   
-Do you have any idea how fucking sick I am of myself? I am completely worn out with my own identity. It's like I'm drowning in my own dismal persona. I feel totally surrounded by it, inside and out. I can't escape from myself. There seems to be no end to me.
-
 
 </div>
 

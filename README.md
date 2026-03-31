@@ -6,7 +6,7 @@
   
 i remake dis l8r
 
-[rentry 1](rentry.co/connoisewer) [rentry 2](rentry.co/mccallion)
+[rentry 1](https://rentry.co/connoisewer) [rentry 2](https://rentry.co/mccallion)
 
 old [1](https://github.com/devimccallion/devimccallion-old3) + [2](https://github.com/devimccallion/devimccallion-old2) 
 

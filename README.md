@@ -8,8 +8,6 @@ i remake dis l8r
 
 [rentry 1](https://rentry.co/connoisewer) [rentry 2](https://rentry.co/mccallion)
 
-old [1](https://github.com/devimccallion/devimccallion-old3) + [2](https://github.com/devimccallion/devimccallion-old2) 
-
 [sign ata if u wnana](https://007n7.atabook.org) 
 
 ![https://file.garden/aQf_20iXlTRXGsgd/1031_2%20(1).png)](https://file.garden/aQf_20iXlTRXGsgd/1031_2%20(1).png)

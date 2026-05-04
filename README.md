@@ -6,7 +6,9 @@
   
 nils/roma  Hi everypony
 
-[rentry](https://rentry.co/turntech)
+i spam follow
+
+[read my rentry](https://rentry.co/turntech)
 
 [sign ata for a cookie](https://007n7.atabook.org) 
 

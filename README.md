@@ -1,14 +1,14 @@
-## Hi there 👋
+
 
 <div align="center">
 
   ![](https://komarev.com/ghpvc/?username=devimccallion&label=Page+Views&color=800085) 
   
-i remake dis l8r
+nils/roma  Hi everypony
 
-[rentry 1](https://rentry.co/connoisewer) [rentry 2](https://rentry.co/mccallion)
+[rentry](https://rentry.co/turntech)
 
-[sign ata if u wnana](https://007n7.atabook.org) 
+[sign ata for a cookie](https://007n7.atabook.org) 
 
 ![https://file.garden/aQf_20iXlTRXGsgd/1031_2%20(1).png)](https://file.garden/aQf_20iXlTRXGsgd/1031_2%20(1).png)
 

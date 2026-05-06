@@ -12,6 +12,7 @@ i spam follow
 
 [sign ata for a cookie](https://007n7.atabook.org) 
 
+ponytown player My chat bubbless are always on friends/party only so i cant see if im being talked to by strangers sorry if i ignore u (//.n)'' whisper me instead \(//.^)/
 ![https://file.garden/aQf_20iXlTRXGsgd/1031_2%20(1).png)](https://file.garden/aQf_20iXlTRXGsgd/1031_2%20(1).png)
 
 </div>

@@ -1,19 +1,17 @@
 
 
-<div align="center">
+<div align="left">
 
   ![](https://komarev.com/ghpvc/?username=devimccallion&label=Page+Views&color=800085) 
   
-nils/roma  Hi everypony
-
-i spam follow
+nils/roma Hi everypony. i spam follow
 
 [read my rentry](https://rentry.co/turntech)
+[sign my messagebook](https://007n7.atabook.org) 
 
-[sign ata for a cookie](https://007n7.atabook.org) 
+ponytown player My chat bubbless are always on friends/party only so i cant see if im being talked to by strangers sorry if i ignore u (//.n)'' whisper me instead \(//.^)/ pls dni if: ur a dark/proshipper/similar terms, if ur below 14, or if ur a bro strider kin or yume.  fans in general on thin ice Idk. Most of u are proshippers but if ur normal its ok i guess 😅 dni doesnt apply to who i follow or who follows me i dont care just dont go beyond that if these things r applicable to you plz
 
-ponytown player My chat bubbless are always on friends/party only so i cant see if im being talked to by strangers sorry if i ignore u (//.n)'' whisper me instead \(//.^)/
-![https://file.garden/aQf_20iXlTRXGsgd/1031_2%20(1).png)](https://file.garden/aQf_20iXlTRXGsgd/1031_2%20(1).png)
+![](https://i.postimg.cc/QNTwzXBL/Screenshot-2026-05-18-233559.png)
 
 </div>
 

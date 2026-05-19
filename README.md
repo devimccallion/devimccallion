@@ -17,6 +17,8 @@ pls dni if: ur a dark/proshipper/similar terms, if ur below 14, or if ur a bro s
 
 ![](https://i.postimg.cc/QNTwzXBL/Screenshot-2026-05-18-233559.png)
 
+i cant be bothered to make my profile cute and aetshetic anym ore sorry that its ugly #IKnow
+
 </div>
 
 <!--

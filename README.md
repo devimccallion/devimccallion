@@ -4,7 +4,9 @@
 
   ![](https://komarev.com/ghpvc/?username=devimccallion&label=Page+Views&color=800085) 
   
-nils/roma Hi everypony. i spam follow
+nils/roma Hi everypony. 
+
+i spam follow w/o reading profiles so if the follow is unwanted please block me to remove it <:-)
 
 [read my rentry](https://rentry.co/turntech)
 [sign my messagebook](https://007n7.atabook.org) 

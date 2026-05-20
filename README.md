@@ -1,10 +1,10 @@
-
-
 <div align="center">
 
   ![](https://komarev.com/ghpvc/?username=devimccallion&label=Page+Views&color=red) 
   
-**nils/roma** 16 yr old pangender lesboy. Hi everypony. i love **music , homestuck , and adult swim shows.**
+**nils/roma** 16 yr old pangender lesboy. Hi everypony. i love **music , homestuck , and adult swim shows.** 
+
+<img width="550" height="300" alt="HIAbzbnWkAEgCzO" src="https://github.com/user-attachments/assets/fc0fed2a-c233-4816-8a30-740107c6f5e9" />
 
 i spam follow w/o reading profiles so if the follow is unwanted please block me to remove it <:-) My chat bubbless are always on friends/party only so i cant see if im being talked to by strangers sorry if i ignore u (//.n)'' i enjoy my peace ~ whisper me instead \(//.^)/ 
 

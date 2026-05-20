@@ -16,6 +16,7 @@ pls dni if: ur a dark/proshipper/similar terms, if ur below 14, or if ur a bro s
 
 ![](https://i.postimg.cc/QNTwzXBL/Screenshot-2026-05-18-233559.png)
 
+#sorry my profile is bland i cant be bothered to make sumthin aesthetic atm X_X
 
 
 </div>

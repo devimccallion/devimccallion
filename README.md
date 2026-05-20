@@ -12,7 +12,7 @@ i spam follow w/o reading profiles so if the follow is unwanted please block me 
 
 [leave me a message on my messagebook if ud be so kind](https://007n7.atabook.org) 
 
-pls dni if: ur a dark/proshipper/similar terms, if ur below 14, or if ur a bro strider kin/id or yume.  fans in general on thin ice Idk. Most of u are proshippers but if ur normal its ok i guess 😅 dni doesnt apply to who i follow or who follows me i dont care just dont go beyond that if these things r applicable to you plz!
+pls dni if: ur a dark/proshipper/similar terms, if ur below 14, or if ur a bro strider kin/id or yume.  fans in general on thin ice Idk. Most of u are proshippers but if ur normal its ok i guess 😅 dni doesnt apply to who i follow or who follows me here i dont care just dont go beyond that if these things r applicable to you plz!
 
 ![](https://i.postimg.cc/QNTwzXBL/Screenshot-2026-05-18-233559.png)
 

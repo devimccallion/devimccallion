@@ -4,6 +4,8 @@
 
 ![](https://i.postimg.cc/htnvhVdX/image.png) <b>nils or roma</b> [atabook](https://crimson.atabook.org) 
 
+![](https://i.postimg.cc/qBjH2nSR/stamp.gif)
+
 </div>
 
 <!--

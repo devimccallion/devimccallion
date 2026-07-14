@@ -1,6 +1,8 @@
 <div align="left">
   
-/// my profile and the ones connected to it are currently unfinished
+/// my profile and the ones connected to it are currently unfinished. 
+
+<b> i have chats from non-friends set to not show, so please forgive me if i dont respond to you </b> ///
 
 </div> 
 

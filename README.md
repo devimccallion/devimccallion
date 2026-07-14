@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=devimccallion&label=Page+Views&color=red) 
+![](https://komarev.com/ghpvc/?username=devimccallion&label=Page+Views&color=005171) 
 
 [atabook](https://007n7.atabook.org) 
 

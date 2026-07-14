@@ -1,5 +1,7 @@
 <div align="center">
 
+/// my profile and the ones connected to it are unfinished
+
 ![](https://komarev.com/ghpvc/?username=devimccallion&label=Page+Views&color=005171)  ᅠ <img width="20" height="20" alt="tumblr_48e63740e76ced8bec0d73aca9091cf0_f1453845_75" src="https://github.com/user-attachments/assets/e52894b0-75c9-462f-909a-890b705f2af9" />
 
 

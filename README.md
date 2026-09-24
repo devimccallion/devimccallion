@@ -1,7 +1,36 @@
-remaking soon yawn............
-
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=devimccallion&label=Page+Views&color=498500)
+![](https://komarev.com/ghpvc/?username=devimccallion&label=Page+Views&color=0d6100)
 
+profile not staying i just cant be bothered to make one with effort right now 
+<img src="https://i.postimg.cc/GtN2qy6p/image.png"> </img>
+
+
+nils/roma ⚢ sixteen
+
+<details>
+  <summary>+</summary>
+  
+  all pronouns excluding they/them
+  
+  usually tabbed on and with my friends (particularly my brother felix, hi felix)
+
+  id prefer that if im with a friend and if i dont know you that "c+h" does not occur Thank y ou (even if you are their frend sry)
+  
+  i have public chat disabled at all times so i can only see whispers
+  
+</details>
+  
+<details>
+  <summary>+</summary>
+  
+i dislike the homestuck fandom as a whole but i especially dislike it on here. please be normal if you interact 
+
+i hate proshippers nd darkshippers or wutever term u wanna use for it, dont interact at all
+
+i also block bro strider kinnies (or anyone who identifies with him to any degree) and his selfshippers
+
+my dni does not apply to my github. i follow anyone i see. just leave me alone beyond github follows if any of this applies to you
+
+</details>
 </div>

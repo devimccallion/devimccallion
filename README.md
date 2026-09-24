@@ -35,5 +35,6 @@ i also block bro strider kinnies (or anyone who identifies with him to any degre
 
 my dni does not apply to my github. i follow anyone i see. just leave me alone beyond github follows if any of this applies to you
 
+i am typically kind and energetic just very tired with this game so its not well reflected here. please dont shy away from interacting! i love to talk to people, its just that i also like to curate my spaces.
 </details>
 </div>

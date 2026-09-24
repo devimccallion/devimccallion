@@ -3,6 +3,9 @@
 ![](https://komarev.com/ghpvc/?username=devimccallion&label=Page+Views&color=0d6100)
 
 profile not staying i just cant be bothered to make one with effort right now 
+
+[mandatory atabook](https://crimson.atabook.org/)
+
 <img src="https://i.postimg.cc/GtN2qy6p/image.png"> </img>
 
 

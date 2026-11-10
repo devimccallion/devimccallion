@@ -13,5 +13,7 @@
 
 i block all homestucks & protree/proshippers on pt forgive me if im sitting on someone
 
+sign ata for a hug and kiss and maybe 20 cents
+
 </details>
 </div>

@@ -10,8 +10,8 @@
 
 <details>
   <summary>+</summary>
-  
-i dislike the homestuck fandom as a whole but i especially dislike it on here please be normal if you interact 
+
+i block all homestucks & protree/proshippers on pt forgive me if im sitting on someone
 
 </details>
 </div>

@@ -15,5 +15,7 @@ i block all homestucks & protree/proshippers on pt forgive me if im sitting on s
 
 sign ata for a hug and kiss and maybe 20 cents
 
+finished profile someday but not today ;-P
+
 </details>
 </div>

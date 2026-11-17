@@ -10,7 +10,7 @@
    <br>
     temp info: im ángel (all pronouns excluding they plez >.0) 16yo butch
     <br>
-     i block quite liberally and rather nonpersonally so please forgive me if im sitting on someone :,-)
+     i block/hide quite liberally and rather nonpersonally so please forgive me if im sitting on someone :,-)
    <br>
    im an autist and my current fixation is overwatch
   </details>

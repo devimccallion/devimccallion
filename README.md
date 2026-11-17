@@ -8,7 +8,7 @@
    <summary>+ + +</summary>
    remaking  . . .  check  back  later
    <br>
-    temp info: im ángel (all pronouns excluding they plez >.0) 16yo butch
+    temp info: im ángel (all pronouns excluding they plez >.0) 16yo mixed butch
     <br>
      i block/hide quite liberally and rather nonpersonally so please forgive me if im sitting on someone :,-)
    <br>

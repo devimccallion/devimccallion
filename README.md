@@ -8,10 +8,10 @@
    <summary>+ + +</summary>
    remaking  . . .  check  back  later
    <br>
-    temp info: im ángel (all pronouns excluding they plez >.0) 16yo mixed butch
+    temp info: im ángel (all pronouns excluding they plez) 16y mixed butch
     <br>
-     i block/hide quite liberally and rather nonpersonally so please forgive me if im sitting on someone :,-)
+     i block/hide quite liberally and nonpersonally so please forgive me if im sitting on someone
    <br>
-   im an autist and my current fixation is overwatch
+   im an autist and my current fixation is overwatch \(//.n)/
   </details>
 </div>
